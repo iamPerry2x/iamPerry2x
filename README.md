@@ -3,6 +3,10 @@
 
  - https://facebook.com/iamperryz004/
 
+ - https://www.instagram.com/iam.perry__/
+
+ - https://discord.io/ChillWithGame
+
 🎮 Steam Account :
 
  - https://steamcommunity.com/id/iamPerry_/
