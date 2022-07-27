@@ -1,11 +1,13 @@
 
-📫 Contact me :
+📫 Social Network :
 
  - https://facebook.com/iamperryz004/
 
  - https://www.instagram.com/iam.perry__/
 
  - https://discord.io/ChillWithGame
+
+ - https://soundcloud.com/phuc-hoang-345510200
 
 🎮 Steam Account :
 
